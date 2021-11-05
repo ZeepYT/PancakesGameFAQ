@@ -26,4 +26,12 @@ Our services might not be the greatest but we take care of them!
 
 Discord: ZeepYt#8397 Youtube: [ZeepYt](https://www.youtube.com/channel/UC9B08SmU9FEQPJefwnTNNUw) Xbox: OptimumKape
 
+### PancakesGame Social Media(s)
+
+[Youtube](https://www.youtube.com/channel/UCXeXnNPn55xp6dZzSt2Ea1Q) Discord: BreadsGame#1788
+
+### Need Contact and Support?
+
+Contact us PancakesGame#1788 and ZeepYt#8397
+
 
