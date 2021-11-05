@@ -1,4 +1,5 @@
 ## PancakesGame FAQ
+![pancake](https://user-images.githubusercontent.com/92223574/140468926-71428f4a-284f-483d-8195-b935d6a72490.png)
 
 Join us at our [PancakesGame Discord](https://discord.link/PancakesGame) 
 
@@ -32,7 +33,7 @@ Discord: ZeepYt#8397 Youtube: [ZeepYt](https://www.youtube.com/channel/UC9B08SmU
 
 ### Need Contact and Support?
 
-Contact us PancakesGame#1788 and ZeepYt#8397
+Contact us BreadsGame#1788 and ZeepYt#8397
 
 ### Commands?
 
