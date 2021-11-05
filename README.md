@@ -27,7 +27,7 @@ Our services might not be the greatest but we take care of them!
 
 Discord: ZeepYt#8397 Youtube: [ZeepYt](https://www.youtube.com/channel/UC9B08SmU9FEQPJefwnTNNUw) Xbox: OptimumKape
 
-### PancakesGame Social Media(s)
+### BreadsGame Social Media(s)
 
 [Youtube](https://www.youtube.com/channel/UCXeXnNPn55xp6dZzSt2Ea1Q) Discord: BreadsGame#1788
 
@@ -54,6 +54,6 @@ For advanced help and issues with the bot feel free to add me in Discord!
 
 ### All Rights Reserved
 
-Pirato Studios 2021
+Pirato Studios 2021                                                          
 Developed by: ZeepYt
 Owned by: BreadsGame
