@@ -38,3 +38,12 @@ Contact us BreadsGame#1788 and ZeepYt#8397
 ### Commands?
 
 p?help - p?beg - p?slots - p?bank - p?store - p?roll - p?spin - p?inv 
+
+### What does PancakesGame Bot Offers?
+
+PancakesGame Bot Offers a tremendous amount of features including economy, moderation, tic tac toe and many more! Invite our bot [here](https://discord.com/api/oauth2/authorize?client_id=903648929709686844&permissions=0&redirect_uri=https%3A%2F%2Fdiscord.events.stdlib.com%2Fdiscord%2Fauth%2F&scope=bot)
+
+### Play with me in hive plez (yes play with meeeeeee)
+
+add me in my main: vahdafgfifg joke it's: VhardFTW Ph9373 and my alt plez too OptimumKape
+yes sorry for wrong grammamr fafsffl;saf;gfs
