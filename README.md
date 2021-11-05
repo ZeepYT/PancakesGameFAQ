@@ -47,3 +47,13 @@ PancakesGame Bot Offers a tremendous amount of features including economy, moder
 
 add me in my main: vahdafgfifg joke it's: VhardFTW Ph9373 and my alt plez too OptimumKape
 yes sorry for wrong grammamr fafsffl;saf;gfs
+
+### Thanks for reviewing our FAQ 
+
+For advanced help and issues with the bot feel free to add me in Discord!
+
+### All Rights Reserved
+
+Pirato Studios 2021
+Developed by: ZeepYt
+Owned by: BreadsGame
