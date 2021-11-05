@@ -34,4 +34,6 @@ Discord: ZeepYt#8397 Youtube: [ZeepYt](https://www.youtube.com/channel/UC9B08SmU
 
 Contact us PancakesGame#1788 and ZeepYt#8397
 
+### Commands?
 
+p?help - p?beg - p?slots - p?bank - p?store - p?roll - p?spin - p?inv 
