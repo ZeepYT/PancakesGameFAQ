@@ -55,5 +55,7 @@ For advanced help and issues with the bot feel free to add me in Discord!
 ### All Rights Reserved
 
 Pirato Studios 2021                                                          
+
 Developed by: ZeepYt
+
 Owned by: BreadsGame
